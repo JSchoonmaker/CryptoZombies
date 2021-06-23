@@ -8,4 +8,4 @@ Course 2 complete: https://share.cryptozombies.io/en/lesson/2/share/JMSchoonmake
 
 Course 3 complete: https://share.cryptozombies.io/en/lesson/3/share/JMSchoonmaker (May 2021)
 
-Course 4 complete: https://share.cryptozombies.io/en/lesson/4/share/CrashOverride?id=W251bGwsMiwxNF0= (Jun 2021)
+Course 4 complete: https://share.cryptozombies.io/en/lesson/4/share/JMSchoonmaker?id=WyJjenwxMTU2NjciLDEsMTRd (Jun 2021)
